@@ -14,8 +14,6 @@ Here are some links so you can find me on other platforms. You can also just che
 
 🎮 RetroAchievements - [KrispyKracka04](https://retroachievements.org/user/KrispyKracka04)
 
-🎵 Spotify - If you wanna listen to some dope ass music, I have a ton of playlists with a huge variety of different songs you can check out. [Kracka](https://open.spotify.com/user/xlem2vbcm7aoh4zl98e8h0pub) on [Spotify](https://spicetify.app/).
-
 ✍️ Backloggd - [LHBlitz](https://bckl.gg/tml)
 
 ✍️ Divisions by zero - [KrispyKracka04](https://lemmy.dbzer0.com/u/KrispyKracka04)
@@ -23,6 +21,8 @@ Here are some links so you can find me on other platforms. You can also just che
 ✍️ Letterboxd - [KrispyKracka04](https://letterboxd.com/KrispyKracka04/)
 
 🤼 Dropkickd - [KrispyKracka04](https://www.dropkickd.com/profile/KrispyKracka04)
+
+🎵 Spotify - If you wanna listen to some dope ass music, I have a ton of playlists with a huge variety of different songs you can check out. [Kracka](https://open.spotify.com/user/xlem2vbcm7aoh4zl98e8h0pub) is my username.
 
 🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
 
