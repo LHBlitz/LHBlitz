@@ -16,6 +16,8 @@ Here are some links so you can find me on other platforms. You can also just che
 
 ✍️ Backloggd - [LHBlitz](https://bckl.gg/tml)
 
+✍️ Divisions by zero - [KrispyKracka04](https://lemmy.dbzer0.com/u/KrispyKracka04)
+
 🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
 
 🤼 Dropkickd - [KrispyKracka04](https://www.dropkickd.com/profile/KrispyKracka04)
