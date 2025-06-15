@@ -6,7 +6,7 @@ Here are some links so you can find me on other platforms. You can also just che
 
 💬 Discord - [lhblitz](https://discordlookup.com/user/692221013995552838)
 
-💬 Revolt - [LHBlitz#6435]((https://revolt.chat/))
+💬 Revolt - [LHBlitz#6435]((https://revolt.chat/)
 
 🎮 PSNProfiles - [LionheartBlitz](https://psnprofiles.com/LionheartBlitz)
 
