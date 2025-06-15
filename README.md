@@ -20,8 +20,8 @@ Here are some links so you can find me on other platforms. You can also just che
 
 ✍️ Letterboxd - [KrispyKracka04](https://letterboxd.com/KrispyKracka04/)
 
-🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
-
 🤼 Dropkickd - [KrispyKracka04](https://www.dropkickd.com/profile/KrispyKracka04)
+
+🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
 
 See ya around. 👋
