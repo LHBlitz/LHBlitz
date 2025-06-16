@@ -4,7 +4,7 @@ I enjoy spending my free time modding and hacking consoles and exploring emulati
 
 Here are some links so you can find me on other platforms. You can also just checkout this link [here](https://lhblitz.carrd.co/)
 
-💬 Discord - [lhblitz](https://discordlookup.com/user/692221013995552838)
+💬 Discord - [lhblitz](https://discord.com/users/692221013995552838)
 
 💬 Revolt - [LHBlitz#6435](https://revolt.chat/)
 
