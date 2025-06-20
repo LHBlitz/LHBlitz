@@ -28,6 +28,6 @@ Here are some links so you can find me on other platforms. You can also just che
 
 🏃‍♂️ You can view all of my speedruns on YouTube [here](https://youtube.com/playlist?list=PLdrn53m_yforpD-pnJ-Jg2-mtPhgV0eTa&feature=shared)
 
-Due to lack of motivation, I don't make content on YouTube anymore. However, I have a couple of videos that I did work on that I'm really proud of for personal reasons. You can check out all of my videos that are now unlisted in [this folder](https://youtube.com/playlist?list=PLdrn53m_yfopEWPVbOyqW_UBSM6zegmhT&feature=shared)
+Due to lack of motivation, I don't make content on YouTube anymore. However, I have a couple of videos that I did work on that I'm really proud of for personal reasons. You can check out all of my videos that are now unlisted in [this playlist](https://youtube.com/playlist?list=PLdrn53m_yfopEWPVbOyqW_UBSM6zegmhT&feature=shared)
 
 See ya around. 👋
