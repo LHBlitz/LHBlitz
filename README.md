@@ -10,6 +10,8 @@ Here are some links so you can find me on other platforms. You can also just che
 
 🎮 PSNProfiles - [LionheartBlitz](https://psnprofiles.com/LionheartBlitz)
 
+🎮 Xbox (PC) - [LHBlitz](https://www.xbox.com/play/user/LHBlitz)
+
 🎮 Nintendo 3DS FC (Pretendo) - [0274-0784-5001](https://pretendo.network/)
 
 🎮 RetroAchievements - [KrispyKracka04](https://retroachievements.org/user/KrispyKracka04)
