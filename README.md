@@ -22,6 +22,8 @@ Here are some links so you can find me on other platforms. You can also just che
 
 ✍️ Letterboxd - [KrispyKracka04](https://letterboxd.com/KrispyKracka04/)
 
+✍️ Serializd - [KrispyKracka04](https://www.serializd.com/user/KrispyKracka04/profile)
+
 ✍️ GBAtemp - [KrispyKracka04](https://gbatemp.net/members/krispykracka04.521425/)
 
 🤼 Dropkickd - [KrispyKracka04](https://www.dropkickd.com/profile/KrispyKracka04)
