@@ -16,6 +16,8 @@ Here are some links so you can find me on other platforms. You can also just che
 
 🎮 RetroAchievements - [KrispyKracka04](https://retroachievements.org/user/KrispyKracka04)
 
+🎮 Persona 5: The Phantom X (Global) - UID:[60000579768](https://persona5x.com/)
+
 ✍️ Backloggd - [LHBlitz](https://bckl.gg/tml)
 
 ✍️ Divisions by zero - [KrispyKracka04](https://lemmy.dbzer0.com/u/KrispyKracka04)
