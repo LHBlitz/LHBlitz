@@ -18,7 +18,7 @@ Here are some links so you can find me on other platforms. You can also just che
 
 🎮 Persona 5: The Phantom X (Global) - UID: [60000579768](https://persona5x.com/)
 
-🎮 Disney Pixel RPG UID [9428 5841 9237](https://d-rpg.com/en/)
+🎮 Disney Pixel RPG UID - [9428 5841 9237](https://d-rpg.com/en/)
 
 ✍️ Backloggd - [LHBlitz](https://bckl.gg/tml)
 
