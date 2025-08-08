@@ -16,9 +16,9 @@ Here are some links so you can find me on other platforms. You can also just che
 
 🎮 RetroAchievements - [KrispyKracka04](https://retroachievements.org/user/KrispyKracka04)
 
-🎮 Persona 5: The Phantom X (Global) - UID: [60000579768](https://persona5x.com/)
+🎮 Persona 5: The Phantom X (Global) UID - [60000579768](https://persona5x.com/)
 
-🎮 Persona 5: The Phantom X (Taiwan) - UID: [30026842989](https://www.p5x.com.tw/)
+🎮 Persona 5: The Phantom X (Taiwan) UID - [30026842989](https://www.p5x.com.tw/)
 
 🎮 Disney Pixel RPG UID - [9428 5841 9237](https://d-rpg.com/en/)
 
