@@ -34,8 +34,6 @@ Here are some links so you can find me on other platforms. You can also just che
 
 🤼 Dropkickd - [KrispyKracka04](https://www.dropkickd.com/profile/KrispyKracka04)
 
-🎵 Spotify - If you wanna listen to some dope ass music, I have a ton of playlists with a huge variety of different songs you can check out. [Kracka](https://open.spotify.com/user/xlem2vbcm7aoh4zl98e8h0pub) is my username.
-
 🎵 KHInsider (VGM) - This is a neat website to download music from video games in a high quality (.flac) format. You can use this link [here](https://downloads.khinsider.com/?u=2584164) to help me unlock more bulk downloads.
 
 🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
