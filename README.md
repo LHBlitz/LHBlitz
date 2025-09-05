@@ -26,20 +26,10 @@ Here are some links so you can find me on other platforms. You can also just che
 
 ✍️ Backloggd - [LHBlitz](https://bckl.gg/tml)
 
-✍️ Divisions by zero - [KrispyKracka04](https://lemmy.dbzer0.com/u/KrispyKracka04)
-
-✍️ Letterboxd - [KrispyKracka04](https://letterboxd.com/KrispyKracka04/)
-
-✍️ Serializd - [KrispyKracka04](https://www.serializd.com/user/KrispyKracka04/profile)
-
-✍️ GBAtemp - [KrispyKracka04](https://gbatemp.net/members/krispykracka04.521425/)
-
 🤼 Dropkickd - [KrispyKracka04](https://www.dropkickd.com/profile/KrispyKracka04)
 
 🎵 KHInsider (VGM) - This is a neat website to download music from video games in a high quality (.flac) format. You can use this link [here](https://downloads.khinsider.com/?u=2584164) to help me unlock more bulk downloads.
 
 🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
-
-🏃‍♂️ You can view all of my speedruns on YouTube [here](https://youtube.com/playlist?list=PLdrn53m_yforpD-pnJ-Jg2-mtPhgV0eTa&feature=shared)
 
 See ya around. 👋
