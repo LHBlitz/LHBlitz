@@ -1,6 +1,6 @@
 ## Yo👋
 
-I enjoy spending my free time modding and hacking consoles and exploring emulation. Outside of that stuff, I also spend my time watching sports and listening to music. You can look at my stars to see everything I'm involved in. I'm also on other platforms, so check me out on those if you'd like!
+I enjoy spending my free time modding and hacking consoles, exploring emulation and coding. Outside of that stuff, I also spend my time watching sports and listening to music. You can look at my stars to see everything I'm involved in. I'm also on other platforms, so check me out on those if you'd like!
 
 Here are some links so you can find me on other platforms. You can also just checkout this link [here](https://lhblitz.carrd.co/)
 
