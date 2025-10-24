@@ -2,7 +2,7 @@
 
 I enjoy spending my free time modding and hacking consoles, exploring emulation and coding. Outside of that stuff, I also spend my time watching sports and listening to music. You can look at my stars to see everything I'm involved in. I'm also on other platforms, so check me out on those if you'd like!
 
-Here are some links so you can find me on other platforms. You can also just checkout this link [here](https://lhblitz.carrd.co/)
+Here are some links so you can find me on other platforms.
 
 💬 Discord - [lhblitz](https://discord.com/users/692221013995552838)
 
@@ -15,8 +15,6 @@ Here are some links so you can find me on other platforms. You can also just che
 🎮 Nintendo 3DS FC (Pretendo) - [0274-0784-5001](https://pretendo.network/)
 
 🎮 RetroAchievements - [KrispyKracka04](https://retroachievements.org/user/KrispyKracka04)
-
-🎮 Persona 5: The Phantom X (Global) UID - [60000579768](https://persona5x.com/)
 
 🎮 Persona 5: The Phantom X (Taiwan) UID - [30026842989](https://www.p5x.com.tw/)
 
