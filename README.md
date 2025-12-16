@@ -6,8 +6,6 @@ Here are some links so you can find me on other platforms.
 
 💬 Discord - [lhblitz](https://discord.com/users/692221013995552838)
 
-💬 Revolt - [LHBlitz#6435](https://revolt.chat/)
-
 🎮 PSNProfiles - [LionheartBlitz](https://psnprofiles.com/LionheartBlitz)
 
 🎮 Xbox (PC) - [LHBlitz](https://www.xbox.com/play/user/LHBlitz)
@@ -16,13 +14,11 @@ Here are some links so you can find me on other platforms.
 
 🎮 RetroAchievements - [KrispyKracka04](https://retroachievements.org/user/KrispyKracka04)
 
-🎮 Persona 5: The Phantom X (Taiwan) UID - [30026842989](https://www.p5x.com.tw/)
-
-🎮 Disney Pixel RPG UID - [9428 5841 9237](https://d-rpg.com/en/)
-
 ✍️ Backloggd - [LHBlitz](https://bckl.gg/tml)
 
 🤼 Dropkickd - [KrispyKracka04](https://www.dropkickd.com/profile/KrispyKracka04)
+
+🎵 last.fm - [Kracka04](https://www.last.fm/user/Kracka04)
 
 🎵 KHInsider (VGM) - This is a neat website to download music from video games in a high quality (.flac) format. You can use this link [here](https://downloads.khinsider.com/?u=2584164) to help me unlock more bulk downloads.
 
