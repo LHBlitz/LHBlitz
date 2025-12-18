@@ -20,7 +20,7 @@ Here are some links so you can find me on other platforms.
 
 🎵 last.fm - [Kracka04](https://www.last.fm/user/Kracka04)
 
-🎵 KHInsider (VGM) - This is a neat website to download music from video games in a high quality (.flac) format. You can use this link [here](https://downloads.khinsider.com/?u=2584164) to help me unlock more bulk downloads.
+🎵 KHInsider (VGM) - [YungPhenix](https://downloads.khinsider.com/?u=2584164) (This is a referral link so I can download more songs in bulk)
 
 🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
 
