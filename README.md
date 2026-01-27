@@ -24,6 +24,6 @@ Here are some links so you can find me on other platforms.
 
 🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
 
-<a href="https://riitag.t0g3pii.de/user/692221013995552838"><img src="https://riitag.t0g3pii.de/692221013995552838/tag.png" alt="RiiTag" /></a>
+<a href="https://riitag.t0g3pii.de/user/692221013995552838"><img src="https://riitag.t0g3pii.de/692221013995552838/tag.max.png" alt="RiiTag" /></a>
 
 See ya around. 👋
