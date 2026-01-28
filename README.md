@@ -14,6 +14,9 @@ Here are some links so you can find me on other platforms.
 
 🎮 RetroAchievements - [KrispyKracka04](https://retroachievements.org/user/KrispyKracka04)
 
+🎮 [RiiTag](https://github.com/t0g3pii/RiiTag-RPC) (Wii)
+<a href="https://riitag.t0g3pii.de/user/692221013995552838"><img src="https://riitag.t0g3pii.de/692221013995552838/tag.max.png" alt="RiiTag" /></a>
+
 ✍️ Backloggd - [LHBlitz](https://bckl.gg/tml)
 
 🤼 Dropkickd - [KrispyKracka04](https://www.dropkickd.com/)
@@ -23,7 +26,5 @@ Here are some links so you can find me on other platforms.
 🎵 KHInsider (VGM) - [YungPhenix](https://downloads.khinsider.com/?u=2584164)
 
 🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
-
-<a href="https://riitag.t0g3pii.de/user/692221013995552838"><img src="https://riitag.t0g3pii.de/692221013995552838/tag.max.png" alt="RiiTag" /></a>
 
 See ya around. 👋
