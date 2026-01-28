@@ -16,7 +16,7 @@ Here are some links so you can find me on other platforms.
 
 ✍️ Backloggd - [LHBlitz](https://bckl.gg/tml)
 
-🤼 Dropkickd - [KrispyKracka04](https://www.dropkickd.com/profile/KrispyKracka04)
+🤼 Dropkickd - [KrispyKracka04](https://www.dropkickd.com/)
 
 🎵 last.fm - [Kracka04](https://www.last.fm/user/Kracka04)
 
