@@ -20,7 +20,7 @@ Here are some links so you can find me on other platforms.
 
 🎵 last.fm - [Kracka04](https://www.last.fm/user/Kracka04)
 
-🎵 KHInsider (VGM) - [YungPhenix](https://downloads.khinsider.com/?u=2584164) (This is a referral link so I can download more songs in bulk)
+🎵 KHInsider (VGM) - [YungPhenix](https://downloads.khinsider.com/?u=2584164)
 
 🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
 
