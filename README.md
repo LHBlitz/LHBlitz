@@ -6,6 +6,10 @@ Here are some links so you can find me on other platforms.
 
 💬 Discord - [lhblitz](https://discord.com/users/692221013995552838)
 
+💬 Fluxer - [YungKrisp#9794](https://fluxer.app/)
+
+💬 Stoat - [LHBlitz#6435](https://stoat.chat/)
+
 🎮 PSNProfiles - [LionheartBlitz](https://psnprofiles.com/LionheartBlitz)
 
 🎮 Xbox (PC) - [LHBlitz](https://www.xbox.com/play/user/LHBlitz)
