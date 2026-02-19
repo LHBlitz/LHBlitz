@@ -14,6 +14,8 @@ Here are some links so you can find me on other platforms.
 
 🎮 RetroAchievements - [KrispyKracka04](https://retroachievements.org/user/KrispyKracka04)
 
+🎮 Persona5: The Phantom X (Global) - [Krispy Kracka - UID: 60000579768](https://persona5x.com/)
+
 🎮 [RiiTag](https://github.com/t0g3pii/RiiTag-RPC) (Wii)
 <a href="https://riitag.t0g3pii.de/user/692221013995552838"><img src="https://riitag.t0g3pii.de/692221013995552838/tag.max.png" alt="RiiTag" /></a>
 
