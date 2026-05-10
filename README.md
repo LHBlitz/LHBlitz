@@ -6,31 +6,14 @@ Here are some links so you can find me on other platforms.
 
 💬 Discord - [lhblitz](https://discord.com/users/692221013995552838)
 
-💬 Fluxer - [YungKrisp#9794](https://fluxer.app/)
-
-💬 Stoat - [LHBlitz#6435](https://stoat.chat/)
-
 🎮 PSNProfiles - [LionheartBlitz](https://psnprofiles.com/LionheartBlitz)
 
-🎮 Xbox (PC) - [LHBlitz](https://www.xbox.com/play/user/LHBlitz)
-
-🎮 Nintendo 3DS FC (Pretendo) - [0274-0784-5001](https://pretendo.network/)
-
 🎮 RetroAchievements - [KrispyKracka04](https://retroachievements.org/user/KrispyKracka04)
-
-🎮 Persona5: The Phantom X (Global) - [Krispy Kracka - UID: 60000579768](https://persona5x.com/)
-
-🎮 [RiiTag](https://github.com/t0g3pii/RiiTag-RPC) (Wii)
-<a href="https://riitag.t0g3pii.de/user/692221013995552838"><img src="https://riitag.t0g3pii.de/692221013995552838/tag.max.png" alt="RiiTag" /></a>
 
 ✍️ Backloggd - [LHBlitz](https://bckl.gg/tml)
 
 🤼 Dropkickd - [KrispyKracka04](https://dropkickd.com/user/KrispyKracka04)
 
 🎵 last.fm - [Kracka04](https://www.last.fm/user/Kracka04)
-
-🎵 KHInsider (VGM) - [YungPhenix](https://downloads.khinsider.com/?u=2584164)
-
-🏃‍♂️ Speedruns - [LHBlitz](https://www.speedrun.com/users/LHBlitz)
 
 See ya around. 👋
