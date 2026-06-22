@@ -8,7 +8,7 @@ Here are some links so you can find me on other platforms.
 
 🎮 PSNProfiles - [LionheartBlitz](https://psnprofiles.com/LionheartBlitz)
 
-🎮 RetroAchievements - [KrispyKracka04](https://retroachievements.org/user/KrispyKracka04)
+🎮 RetroAchievements - [RaijinIV](https://retroachievements.org/user/RaijinIV)
 
 ✍️ Backloggd - [LHBlitz](https://bckl.gg/tml)
 
